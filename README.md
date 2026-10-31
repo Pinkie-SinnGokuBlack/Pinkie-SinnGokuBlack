@@ -1,4 +1,4 @@
-## trying to rmk
+## trying to remake , this is going to take while . . .
 
 <!--
 **Pinkie-SinnGokuBlack/Pinkie-SinnGokuBlack** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
