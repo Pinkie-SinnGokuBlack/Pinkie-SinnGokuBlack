@@ -1,4 +1,4 @@
-## Hi there 👋
+## trying to rmk
 
 <!--
 **Pinkie-SinnGokuBlack/Pinkie-SinnGokuBlack** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
