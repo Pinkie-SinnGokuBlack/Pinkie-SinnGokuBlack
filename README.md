@@ -16,7 +16,7 @@ $$\color{#f0c4cd}{\text{\small{ 17 yrs}}}$$
 $$\color{#f0c4cd}{\text{\small{ im taken , i have awesome bf <33}}}$$
 $$\color{#f0c4cd}{\text{\small{ and i lovd him so muchhh}}}$$
 
-<img width="1200"src="https://github.com/user-attachments/assets/b02dc80c-aded-4054-b1d6-b929edd12bab" />
+<img width="1200" src="https://github.com/user-attachments/assets/b02dc80c-aded-4054-b1d6-b929edd12bab" />
 
 <div align="center"> im not done with this page . . .
 
