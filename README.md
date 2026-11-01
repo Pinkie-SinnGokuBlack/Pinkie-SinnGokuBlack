@@ -10,8 +10,8 @@
   
 
 <img width="1200" alt="Untitled81_20261101230906" src="https://github.com/user-attachments/assets/a9bfcac3-3cd7-4f5e-94e1-3c6cdb7a16a2" />
-
-<p align="center">   call me Pinkie
+<div style="color : Magenta ;">
+<p align="center"> call me Pinkie
 
 <p align="center">   she / her
   
