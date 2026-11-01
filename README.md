@@ -4,11 +4,10 @@
 
 <img width="1200" alt="Untitled73_20261101231423" src="https://github.com/user-attachments/assets/2a87f7b5-def3-4df3-9759-31511891470d" />
 
+$$\color{#f0c4cd}{\text{\small{ ˚⊱ This pain will make me stronger .ᐟ » Goku Black ⊰˚}}}$$
 
-<div style="color : pink ;">
-<p align="center"> ˚⊱ This pain will make me stronger .ᐟ » Goku Black ⊰˚
   
-
+<div style="color : pink ;">
 <img width="1200" alt="Untitled81_20261101230906" src="https://github.com/user-attachments/assets/a9bfcac3-3cd7-4f5e-94e1-3c6cdb7a16a2" />
 <div style="color : Pink ;">
 <p align="center"> call me Pinkie
