@@ -6,7 +6,7 @@
 
 
 <div style="color : pink ;">
-<p align="center">   ˚⊱ This pain will make me stronger .ᐟ » Goku Black ⊰˚
+<p align="center"> ˚⊱ This pain will make me stronger .ᐟ » Goku Black ⊰˚
   
 
 <img width="1200" alt="Untitled81_20261101230906" src="https://github.com/user-attachments/assets/a9bfcac3-3cd7-4f5e-94e1-3c6cdb7a16a2" />
