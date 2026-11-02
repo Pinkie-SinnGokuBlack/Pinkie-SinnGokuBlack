@@ -8,6 +8,14 @@ $$\color{#f0c4cd}{\text{\small{ ˚⊱ This pain will make me stronger .ᐟ » G
 
 <img width="1200" alt="Untitled81_20261101230906" src="https://github.com/user-attachments/assets/a9bfcac3-3cd7-4f5e-94e1-3c6cdb7a16a2" />
 
+<div align="center">
+
+  <a href="https://impinkie-gokublackswife.atabook.org/"><i>Ata</i></a>
+  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://impinkiegokublackwife.straw.page"><i>Straw</i></a>
+
+</div>
+
 $$\color{#f0c4cd}{\text{\small{Pinkie}}}$$
 
 $$\color{#f0c4cd}{\text{\small{She 𓏵 Her ◞  17 yrs}}}$$
