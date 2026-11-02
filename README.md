@@ -10,7 +10,7 @@ $$\color{#f0c4cd}{\text{\small{ ˚⊱ This pain will make me stronger .ᐟ » G
 
 $$\color{#f0c4cd}{\text{\small{Pinkie}}}$$
 
-$$\color{#f0c4cd}{\text{\small{She 𓏵 Her ◞ 17 yrs}}}$$
+$$\color{#f0c4cd}{\text{\small{She 𓏵 Her ◞  17 yrs}}}$$
 
 $$\color{#f0c4cd}{\text{\small{𑣲 im taken to my handsome bf <33 .ᐟ}}}$$
 
