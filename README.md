@@ -1,5 +1,4 @@
 
-## trying to remake , this is going to take while . . .
 
 
 <img width="1200" alt="Untitled73_20261101231423" src="https://github.com/user-attachments/assets/2a87f7b5-def3-4df3-9759-31511891470d" />
