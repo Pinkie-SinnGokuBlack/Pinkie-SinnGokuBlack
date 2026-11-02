@@ -12,13 +12,13 @@ $$\color{#f0c4cd}{\text{\small{ ˚⊱ This pain will make me stronger .ᐟ » G
 
 $$\color{#f0c4cd}{\text{\small{Call me Pinkie}}}$$
 
-$$\color{#f0c4cd}{\text{\small{She / Her}}}$$
+$$\color{#f0c4cd}{\text{\small{She 𓏵 Her}}}$$
 
 $$\color{#f0c4cd}{\text{\small{17 yrs}}}$$
 
-$$\color{#f0c4cd}{\text{\small{ im taken , i have awesome bf <33}}}$$
+$$\color{#f0c4cd}{\text{\small{𑣲 im taken to my handsome bf <33 .ᐟ}}}$$
 
-$$\color{#f0c4cd}{\text{\small{and I love him so muchhh}}}$$
+
 
 
 <img width="1200" src="https://github.com/user-attachments/assets/b02dc80c-aded-4054-b1d6-b929edd12bab" />
