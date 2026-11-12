@@ -12,7 +12,7 @@ $$\color{#f0c4cd}{\text{\small{ ˚⊱ This pain will make me stronger .ᐟ » G
 
   <a href="https://impinkie-gokublackswife.atabook.org/"><i>Ata</i></a>
   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-  <a href="https://impinkiegokublackwife.straw.page"><i>Straw</i></a>
+  <a href="https://pinkie-sinngokublack.straw.page"><i>Straw</i></a>
 
 </div>
 
