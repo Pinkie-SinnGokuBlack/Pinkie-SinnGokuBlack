@@ -22,7 +22,7 @@ $$\color{#f0c4cd}{\text{\small{She 𓏵 Her ◞  17 yrs}}}$$
 
 $$\color{#f0c4cd}{\text{\small{𑣲 im taken to my handsome bf <33 .ᐟ}}}$$
 
-$$\color{#f0c4cd}{\text{\small{Fav character ⨾ Goku Black ofcc}}}$$
+$$\color{#f0c4cd}{\text{\small{Fav character ⨾ Goku Black , Mattheo Riddle ofcc}}}$$
 
 $$\color{#f0c4cd}{\text{\small{» i draw ◞ im shy ◞ bad mh «}}}$$
 
